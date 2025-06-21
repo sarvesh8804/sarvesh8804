@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sarvesh.huddar1@gmail.com**
 
-- 👨‍💻 Coding Profiles [**sarvesh.huddar1@gmail.com**](https://codolio.com/profile/sarvesh_huddar)
+- 👨‍💻 Coding Profiles [https://codolio.com/profile/sarvesh_huddar](https://codolio.com/profile/sarvesh_huddar)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
